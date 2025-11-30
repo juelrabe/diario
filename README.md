@@ -4,7 +4,6 @@
 
 25/11/2025<br>
 02:59 pm dif villa de alvarez solicitud preguntas<br>
-<br>
 
 21-11-2025<br>
 05:30 pm casa de la cultura clase de dibujo<br>
