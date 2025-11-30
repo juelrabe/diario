@@ -1,7 +1,6 @@
 # diario
 29-11-2025<br>
 11:30 am aprox. casa de la cultura por libros<br>
-<br>
 
 25/11/2025<br>
 02:59 pm dif villa de alvarez solicitud preguntas<br>
