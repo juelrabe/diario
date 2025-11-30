@@ -1,14 +1,13 @@
 # diario
 29-11-2025<br>
 11:30 am aprox. casa de la cultura por libros<br>
-
+<br>
 25/11/2025<br>
 02:59 pm dif villa de alvarez solicitud preguntas<br>
-
+<br>
 21-11-2025<br>
 05:30 pm casa de la cultura clase de dibujo<br>
 <br>
-
 20-11-2025<br>
 05:52 pm poder judicial continuar solicitud copia de expediente, oficinas cerradas<br>
 <br>
