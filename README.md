@@ -1,5 +1,5 @@
 # diario
-29-11-2025<br>
+29-11-2025
 11:30 am aprox. casa de la cultura por libros<br>
 
 25/11/2025<br>
